@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Amna katiyar
+- 👋 Hi, I’m Aman katiyar
 - 👀 I’m interested in Automation/Gaming/Trading & Blockchain also.
 - 🌱 I’m currently learning  Blockchain.
 - 💞️ I’m looking to collaborate on ...
